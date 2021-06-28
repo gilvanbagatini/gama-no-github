@@ -1,0 +1,2 @@
+O curso é interessante. Estou gostando da abordagem das aulas, que não entregam o conteúdo completamente mastigado, obrigando o aluno a pensar para resolver os problemas propostos.
+Outro ponto positivo é toda a comunidade que dá suporte, tando os colegas quanto a equipe da Gama, todos prestativos e dispostos a colaborar com o crescimento coletivo.
